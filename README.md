@@ -1,5 +1,4 @@
 # Carlos Alban
----
 
 ## Professional Life
 
